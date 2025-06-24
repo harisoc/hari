@@ -44,8 +44,8 @@
 ---
 
 ### 📫 Let's Connect!
-- 🌐 [LinkedIn](https://www.linkedin.com/in/your-link)  
-- 📬 Email: `your.email@example.com`
+- 🌐 [www.linkedin.com/in/k-srihari-86386a268)  
+- 📬 Email: soccoder@gmail.com
 
 ---
 
